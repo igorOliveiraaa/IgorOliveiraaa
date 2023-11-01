@@ -44,4 +44,4 @@ Apaixonado por tecnologia, educação e por faciliatar a vida das pessoas atrav�
 
 
 
--Se quiser entrar em contato comigo, sinta-se à vontade para me enviar um e-mail ou conectar comigo no LinkedIn. Estou sempre aberto a novas oportunidades, projetos emocionantes e inovadores!
+-Para entar contato comigo, sinta-se à vontade para me enviar um e-mail ou conectar comigo no LinkedIn. Estou sempre aberto a novas oportunidades, projetos emocionantes e inovadores!
